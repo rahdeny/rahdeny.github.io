@@ -1,2 +1,0 @@
-# rahdeny.github.io
-gratiss
